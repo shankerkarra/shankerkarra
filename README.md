@@ -9,15 +9,12 @@ Hello there
 How to reach out to me 
 
     📩  shankerkarra@gmail.com 
-
     💼  LinkedIn 
-
  
 
 About Me 
 
     🎬 Fan of enjoying a good film and tv show 
-
     🏕 Outdoor / camping lover 
 
  
