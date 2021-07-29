@@ -8,8 +8,9 @@ Hello there
 
 How to reach out to me 
 
-    📩  shankerkarra@gmail.com 
-    💼  LinkedIn 
+    📩  [Contact Me](mailto:shankerkarra@gmail.com)
+
+    💼  LinkedIn: Https://www.linkedin.com/in/shankerkarra/
  
 
 About Me 
